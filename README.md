@@ -7,6 +7,8 @@ Also, did you know flamingos aren't always pink?
 
 End of message.
 
-Adding further things.
+Removing old text here and replacing with new one.
 
 End of message again.
+
+End of message for the third time! Can you believe it's really been this many edits?
